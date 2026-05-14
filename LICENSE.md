@@ -1,4 +1,4 @@
-#  
+#  instant evade Scripts is the best evade Script, featuring auto-heal and auto-farm. Safe and powerful for all your needs.
 
 
 
